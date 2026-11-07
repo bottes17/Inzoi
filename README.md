@@ -240,4 +240,4 @@ inZOI is available as a full free version with all features and updates included
 Don't miss out on the fun! Download inZOI now for an immersive gaming experience!
 
 ---
-**Last updated:** 2026-11-07 13:50:02 UTC
+**Last updated:** 2026-11-07 18:33:25 UTC
